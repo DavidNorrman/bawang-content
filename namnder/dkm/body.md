@@ -197,6 +197,30 @@ _Bullshit att du har oregano i köttfärssås, det ska du ha på pizza och i gre
 
 Cliff kallas de som efter trogen tjänst valt att gå ur DKM. Undrar du varför de kallas för Cliff? Fråga närmsta Cliff!
 
+### Cliff -18
+
+* __Pontus Broberg__
+  * Klubbmästare
+  * _Nu ska jag sätta mig ner och ta ett djup andetag, sedan ta ett djupt biraandetag_
+* __Samuel Hertzberg__
+  * Vice klubbmästare
+  * _Smak är hur dum i huvudet man är men hur full är man är är hur DKM man är_
+* __Christina Sunnegårdh__
+  * Ekonomimästare
+  * _Nu har vi sånglektioner! KNIIIP!!_
+* __Isac Haglund__
+  * Ekonomimästare
+  * _Jag har symmetriska fingrar!_
+* __Klara Eserstam__
+  * Barmästare
+  * _Som att man inte slickat på metas golv förut_
+* __Joar Rutqvist__
+  * Barmästare
+  * _Alltså det finns en fett god drink, du börjar med krossat glas..._
+* __Martin Hyberg__
+  * Festmästare
+  * _Omg nu fick jag leversvikt_
+
 ### Cliff -17
 
 * __Aron Strandberg__
